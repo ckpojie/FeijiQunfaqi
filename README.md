@@ -1,4 +1,4 @@
-飞机群发器 #FeijiQunfaqi
+飞机群发器 #FeijiQunfaqi #TGQunfaqi
 # 飞机群发器_TG群发软件_Telegram群发工具_破解版
 ## [刺客工作室]
 ## 官网：https://www.ckpojie.com/
